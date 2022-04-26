@@ -1,1 +1,0 @@
-# iris_readme_pic
